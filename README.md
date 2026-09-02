@@ -1,1 +1,0 @@
-# Tessara-ads
